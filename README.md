@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yasin00007
+- 👋 Hi, I’m Yasin Tamboli
 - 👀 I’m interested in Faang Companies 
 - 🌱 I’m currently learning New Tech
 - 📫 tamboliy81@gmail.com
